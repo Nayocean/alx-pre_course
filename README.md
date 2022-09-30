@@ -1,1 +1,1 @@
-You seem Stubborn
+You're Stubborn
